@@ -4,5 +4,4 @@ El señor Donal Furioso ha tenido un percance a la salida de la calle 133, ha su
 
 
 
-
-
+Donal Furioso menciona que necesitará una hoja de reclamaciones debido al accidente y la mala experiencia que ha tenido. El director responde disculpándose por cualquier inconveniente y ofreciendo un lavado de coche gratuito como gesto de disculpa.
